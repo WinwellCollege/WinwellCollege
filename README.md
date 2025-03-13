@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming, school, music
 - 🌱 I’m currently learning computer science, but I'll be switching to mechanical engineering
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me @yikesmahoney on Instagram or xanderluberdecenacollege@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I play guitar
 
